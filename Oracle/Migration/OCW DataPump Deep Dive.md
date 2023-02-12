@@ -1,0 +1,13 @@
+![[9BE61B25-B1E0-4C78-8D2A-F710F44C27F7.jpeg]]![[4DCF974B-FEC6-4C6A-B260-0D2DE71CE05B.jpeg]]
+Roy: don't use SYS use SYSTEM instead (parallel Problems)
+
+![[FBA3E749-0983-4FB7-AC5E-A9E28F0673A9.jpeg]]
+
+![[56FE3C59-A326-440F-AB94-0FA88ED6C2A3.jpeg]]
+
+![[3338A8F0-7D9B-46DD-B9A3-B658EA108C93.jpeg]]![[170709B6-482D-46F4-9722-5BFC767985C7.jpeg]]
+
+
+# Tags:
+
+[[Präsentationen]] - [[Migration]] - [[MikeDietrich]]
